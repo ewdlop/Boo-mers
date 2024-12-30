@@ -1,5 +1,7 @@
 # Boo-mers
 
+[U.S. Department of Homeland Security Awards AT&T with 10-Year Contract to Support National Security and Emergency Preparedness Communications](https://about.att.com/story/2024/department-of-homeland-security.html)
+
 https://www.youtube.com/shorts/ONeqQw1IAVk
 
 https://www.youtube.com/shorts/odO1vmDC8AE
